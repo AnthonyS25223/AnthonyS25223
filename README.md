@@ -8,5 +8,5 @@ I'm a recent college graduate from **Grinnell College** with a BA in Computer Sc
 Grinnell College - Bachelor of Arts in Computer Science
 Concentration in Statistics
 
------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+___________________________________________________________________________________________________________________________________________________________________________________________________________
 Thanks for visiting my profile! Feel free to reach out if you'd like to connect or collaborate.
